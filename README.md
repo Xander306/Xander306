@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Xander306
+- 👋 Hi, I’m Xander306
 - 👀 I’m interested in building and customizing BMX bikes.
 - 🌱 I’m currently learning how to help our world.
 - 💞️ I’m looking to collaborate on ways to nurture my learning.
